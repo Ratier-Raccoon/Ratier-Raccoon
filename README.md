@@ -1,8 +1,23 @@
 ### ```My stufflings :]```
 
-**• Ratier Raccoon ;**
+  **• Aloof.**
+  
+  -—´★`—-
+  
+  **• Undiagnosed**, but I might be autistic.
 
- . Mostly AFK, if I don't answer please do /whisp! ;
+-—-—-
+
+🪻 ; INTP 5w4 - Furry ; 
+
+♀️ ; 21y/o - Demisexual, straight ; 
+
+🎧 ; Alone - Cavetown ; 
+
+•.°
+
+🎮 ; Hyperfixated on Forsaken ; 
+-—-—-
  
  .  
 
