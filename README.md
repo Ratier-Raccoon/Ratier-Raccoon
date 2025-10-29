@@ -1,4 +1,4 @@
-  <p align="center"> ### *+.• Ratier Raccoon!! •.+* .</p>
+  <p align="center">*+.• Ratier Raccoon!! •.+* .</p>
 
   **• Aloof.**
   
