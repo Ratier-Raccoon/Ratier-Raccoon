@@ -1,5 +1,5 @@
 ----------------------------------
-### • Call me Ratier! ;\]
+## • Call me Ratier! ;\]
 
 `-—.★.—-´
 
@@ -13,13 +13,13 @@
   
 `-—.★.—-´
 
-• INTP 5w4 - Furry ;; 
+\[🪻\] ;; INTP 5w4 - Furry ;; 
 
-• 22y/o - Demisexual, Straight ;; 
+\[♀️\] ;; 22y/o - Demisexual, Straight ;; 
 
-• Heavy Ivan \(Bad Things, Roblox\) kin ;;
+\[🪓\] ;; Heavy Ivan \(Bad Things, Roblox\) kin ;;
 
-• Hyperfixating on Forsaken \(Chance\) and Sebastian \(Pressure\) a lot, lol ;;
+\[🍀\] ;; Hyperfixating on Forsaken \(Chance\) and Sebastian \(Pressure\) a lot, lol ;;
 
  ----------------------------------
  
