@@ -19,7 +19,7 @@
 
 \[🪓\] ;; Heavy Ivan \(Bad Things, Roblox\) kin ;;
 
-\[🍀\] ;; Hyperfixating on Forsaken \(Chance\) and Sebastian \(Pressure\) a lot, lol ;;
+\[🍀\] ;; Hyperfixating on Chance \(Forsaken\) and Sebastian \(Pressure\) a lot, lol ;;
 
  ----------------------------------
  
