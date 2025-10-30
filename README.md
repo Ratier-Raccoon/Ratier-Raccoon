@@ -17,6 +17,8 @@
 
 • Heavy Ivan \(Bad Things, Roblox\) kin ;;
 
+• Hyperfixating on Forsaken \(Chance\) and Sebastian \(Pressure\) a lot, lol ;;
+
  ----------------------------------
  
 
