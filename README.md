@@ -1,27 +1,22 @@
-  <p align="center">*+.• Ratier Raccoon!! •.+* .</p>
+----------------------------------
+### • Call me Ratier! ;\]
 
-  **• Aloof.**
+`-—.★.—-´
+
+• Always alone / aloof... it's comfy. ;;
+
+• C+H always enc!! ;; 
+
+• Heavy Paycheck enthusiast, always int!! ;; 
   
-  -—´★`—-
-  
-  **• Undiagnosed**, but I might be autistic.
+`-—.★.—-´
 
--—-—-
+• INTP 5w4 - Furry ; 
 
-🪻 ; INTP 5w4 - Furry ; 
-
-♀️ ; 21y/o - Demisexual, straight ; 
-
-🎧 ; Alone - Cavetown ; 
-
-•.°
-
-🎮 ; Hyperfixated on Forsaken ; 
--—-—-
- 
- .  
+• 22y/o - Demisexual, Straight ; 
 
  ----------------------------------
+ 
 
 ![doc](https://github.com/user-attachments/assets/af08dbd3-6a8f-4e54-8db3-3686fd4aa71f)
 
