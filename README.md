@@ -3,13 +3,13 @@
 
 `-—.★.—-´
 
-\[🌙\] ;;  Mostly AFK!! If I don't reply, please do w2i :\]
+\[🌙\] ;; Mostly AFK!! If I don't reply, please do w2i :\]
 
-• Always alone / aloof... it's comfy... but don't be afraid to int!! ;;
+\[🍃\] ;; Always alone... it's comfy... but don't be afraid to int !!
 
-• C+H always enc!! ;; 
+\[🌟\] ;; C+H enc !!
 
-• Heavy Paycheck enthusiast, always int!! ;; 
+\[🍕\] ;; Heavy Paycheck enthusiast, always int <3 ;; 
   
 `-—.★.—-´
 
