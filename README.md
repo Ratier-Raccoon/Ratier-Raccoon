@@ -21,6 +21,8 @@
 
 \[🍀\] ;; Hyperfixating on Chance \(Forsaken\) and Sebastian \(Pressure\) a lot, lol ;;
 
+\[🌈\] ;; **Undiagnosed**, but I *might* be autistic ;;
+
  ----------------------------------
  
 
