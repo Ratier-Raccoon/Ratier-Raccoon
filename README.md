@@ -3,9 +3,9 @@
 
 `-—.★.—-´
 
-• Always alone / aloof... it's comfy. ;;
-
 • Mostly AFK!! If I don't reply, please do w2i :\] ;; 
+
+• Always alone / aloof... it's comfy... but don't be afraid to int!! ;;
 
 • C+H always enc!! ;; 
 
