@@ -5,6 +5,8 @@
 
 • Always alone / aloof... it's comfy. ;;
 
+• Mostly AFK!! If I don't reply, please do w2i :\] ;; 
+
 • C+H always enc!! ;; 
 
 • Heavy Paycheck enthusiast, always int!! ;; 
