@@ -15,7 +15,7 @@
 
 \[🪻\] ;; INTP 5w4 - Furry ;; 
 
-\[♀️\] ;; 22y/o - Demisexual, Straight ;; 
+\[♀️\] ;; 22y/o - Demisexual, straight ;; 
 
 \[🪓\] ;; Heavy Ivan \(Bad Things, Roblox\) kin ;;
 
