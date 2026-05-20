@@ -30,4 +30,4 @@
 
 *\[ Art belongs to Koda \(@astertude\) on Twitter / X !! \]*
 
-*\[ Account for Pony Town only\]*
+*\[ Account for Pony Town only \]*
