@@ -9,7 +9,7 @@
 
 \[🌟\] ;; C+H enc !!
 
-\[🍕\] ;; Heavy Paycheck enthusiast, always int <3 ;; 
+\[🍕\] ;; Heavy Paycheck enthusiast ;; 
   
 `-—.★.—-´
 
