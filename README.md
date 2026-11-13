@@ -13,7 +13,7 @@
   
 `-—.★.—-´
 
-\[🪻\] ;; INTP 5w4 - Furry ;; 
+\[🪻\] ;; INTP Sp/Sx 5w4 - Furry ;; 
 
 \[♀️\] ;; 23y/o - Demisexual, straight ;; 
 
